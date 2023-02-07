@@ -6,6 +6,4 @@ Thanks for your interest!
 
 Find me on Discord: [WowGeeWhiz#4166](https://discord.com/channels/WowGeeWhiz#4166)
 
-Find me on Steam: [WowGeeWhiz](https://steamcommunity.com/id/WowGeeWhiz/)
-
 Find me on Twitter: [@WowGeeWhiz](https://twitter.com/WowGeeWhiz)
