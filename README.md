@@ -4,6 +4,8 @@ I have coded programs in C#, Java, and C++ (All of my C++ projects were simple a
 
 Currently employed by [iD Tech](https://www.idtech.com) as a part-time instructor for CS and Game Design related fields.
 
+Studying Computer Game Design and Development at Kennesaw State University
+
 Find me on Discord: [WowGeeWhiz#4166](https://discord.com/channels/WowGeeWhiz#4166)
 
 Find me on Twitter: [@WowGeeWhiz](https://twitter.com/WowGeeWhiz)
