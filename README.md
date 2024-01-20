@@ -6,4 +6,4 @@ Studying Computer Game Design and Development at Kennesaw State University
 
 ----
 
-Find me on Discord: [WowGeeWhiz#4166](https://discord.com/channels/WowGeeWhiz#4166)
+Find me on Discord: WowGeeWhiz
